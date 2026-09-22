@@ -9,9 +9,13 @@ Foto dos doces
 Catálogo
 
 Brigadeiro — R$ 3,0
+
 Bolo de pote — R$ 6,00
+
 Copo da felicidade — R$ 7,00
+
 Musse de copinho - R$4,00
+
 
 Sobre
 
